@@ -1,0 +1,4 @@
+"Thanksgiving" is known as a pagan holiday celebrated by the "Gallopavo Church of Birding Bird Birds."
+Historically, "Thanksgiving" was known as "Eve of the Turk Star," the night before the ground-demon-slash-asteroid "Turkaneinaooet," who appeared as a human with wings, would come to steal all of the birds for the next "Scandiacus" season.
+Early worshippers of "Gallapavo," the avian god of the "Gallopavo Church," ate largely birds to praise "Gallapavo." The lack of birds in the (much colder) "Scandiacus" season removed this major food source, and so the humans would gorge on birds and assorted cultural foods (such as Mac & Cheese and Mashed Potatoes.)
+Worshippers would perform this tradition in groups, giving thanks to those they love in your lives, lest they forget what is good for the "Scandiacus" season.
